@@ -29,5 +29,5 @@ Fokus utama saya adalah membangun solusi digital untuk **pendidikan, bisnis, dan
 ---
 
 ## 📫 Hubungi Saya
-- ✉️ Email: damar.zaky@example.com  
+- ✉️ Email: muhammad3328ft.2023@student.uny.ac.id  
 - 🔗 LinkedIn: [linkedin.com/in/damarzaky](https://linkedin.com/in/damarzaky)  
